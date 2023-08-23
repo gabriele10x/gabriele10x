@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @gabriele10x
 - 👀 I’m interested in in gym rats
 - 🌱 I’m currently learning to be strong and stay fit
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on in feeding weights
 - 📫 How to reach me going to a gym
 ![](https://tenor.com/Iolv.gif)
 <!---
