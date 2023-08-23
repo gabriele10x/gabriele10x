@@ -2,6 +2,9 @@
 - 👀 I’m interested in in gym rats
 - 🌱 I’m currently learning to be strong and stay fit
 - 💞️ I’m looking to collaborate on in feeding weights
+- 🫵🏻buttocks up to date
+- ✌️goal: big coast
+- 🫶🏻I love back training
 - 📫 How to reach me going to a gym
 ![](https://tenor.com/Iolv.gif)
 <!---
